@@ -1,5 +1,5 @@
 # 🎰 Cratosslot — Kolay ve Keyifli Online Deneyim
-
+<meta name="google-site-verification" content="MsrSozDkOuhdXjBwg0hRIMM6ez-b_gXAgL7_3d8qHtI" />
 Cratosslot, basit kullanımı ve popüler oyun koleksiyonuyla her zevke hitap eden bir platformdur. Her zaman kolay erişim ve rahat bir ortam sunar.
 
 ---
